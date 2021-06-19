@@ -1,4 +1,4 @@
-# meus deseinhos
-daqui uns dois anos aparece um bom de vdd
+# Meus Deseinhos
+Daqui uns dois anos aparece um bom de vdd
 ;)
 
